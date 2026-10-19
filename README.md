@@ -8,3 +8,5 @@ this is the biggest thing i am telling
 dont connect emotions to learning it a consistency the connection will become itself while learning but at this current time dont connect emotions to ]earning 
 
 i love ai i love web dev or something no loving its just a things and its and hobby or intrest
+
+https://youtu.be/2PT5oiTSx_U
