@@ -10,3 +10,7 @@ dont connect emotions to learning it a consistency the connection will become it
 i love ai i love web dev or something no loving its just a things and its and hobby or intrest
 
 https://youtu.be/2PT5oiTSx_U
+
+https://youtu.be/uEEfeSuD_Po
+
+https://youtu.be/_0d1rM_YqaE
