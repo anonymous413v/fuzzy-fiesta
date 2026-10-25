@@ -14,3 +14,6 @@ https://youtu.be/2PT5oiTSx_U
 https://youtu.be/uEEfeSuD_Po
 
 https://youtu.be/_0d1rM_YqaE
+
+
+https://chatgpt.com/c/6ade132f-ff70-83ec-a73b-23083b05b213
